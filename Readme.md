@@ -44,3 +44,6 @@ The Google Search Analysis successfully provided insights into search trends and
 
 [GitHub Profile](https://github.com/Shreya7tripathy)
 [LinkedIn Profile](https://www.linkedin.com/in/shreyatripathy7/)
+
+---
+SHOW SOME ❤️ BY STARRING ⭐️ THIS REPO 😇
